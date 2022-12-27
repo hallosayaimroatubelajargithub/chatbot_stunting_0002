@@ -6,4 +6,7 @@
 | Matkul | Text Minning |
 
 
-![stunting](https://user-images.githubusercontent.com/107184872/209421231-819c0e2f-163b-4016-88aa-86d56ed76302.png)
+
+![Permisi__1_-removebg-preview](https://user-images.githubusercontent.com/107184872/209610255-b04fe1dd-930e-42e6-99cc-72098b057a87.png)
+
+
